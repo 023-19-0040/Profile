@@ -13,7 +13,6 @@
 
 - ⚡ Fun fact **I think I am moody.Mix of chill and hell hahaaha angry Bird.**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
